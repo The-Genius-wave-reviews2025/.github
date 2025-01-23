@@ -4,7 +4,7 @@
 
 ## Overview
 
-Before Getting Into The Detailed Pymander Script Reviews, Let's Get An Overview Of The Product:
+Before Getting Into The Detailed The Genius Wave Reviews, Let's Get An Overview Of The Product:
 
 [The Genius Wave - Official Website Link - Click Here](https://thegeniuswavve.com/)
 
